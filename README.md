@@ -1,3 +1,3 @@
 oie eu sou o luiz
 
-[](https://i.imgur.com/OKPBxQO.gif)
+![](https://media.tenor.com/KyMK7dTUBsoAAAAd/gojo-satoru.gif)
